@@ -8,3 +8,10 @@
 +Light Mode
 
 ![Screenshot (28)](https://user-images.githubusercontent.com/123797735/215674536-d225ea8c-2a07-49af-bf74-d48b70bc70c7.png)
+
+
+credit: Trean Chhanon
+
+gmail: chhanontrean@gmail.com
+
+tell: +855 97 8982 802
